@@ -1,0 +1,25 @@
++++
+title = "001 Sanjay Chakravarty [Gmail]"
+
++++
+[[Sanjay Chakravarty [Gmail]	2014-01-04, 09:10:48 [Source](https://groups.google.com/g/samskrita/c/vyXvex9aZOw)]]
+
+
+
+I use Itranslator. Downloadable at <http://www.omkarananda-ashram.org/>.
+
+
+
+Warm Regards
+
+Sanjay
+
+
+
+--  
+You received this message because you are subscribed to the Google Groups "samskrita" group.  
+To unsubscribe from this group and stop receiving emails from it, send an email to [samskrita+...@googlegroups.com]().  
+To post to this group, send email to [sams...@googlegroups.com]().  
+Visit this group at <http://groups.google.com/group/samskrita>.  
+For more options, visit <https://groups.google.com/groups/opt_out>.
+

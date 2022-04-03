@@ -1,0 +1,65 @@
++++
+title = "004 Nagaraj Paturi"
+
++++
+[[Nagaraj Paturi	2019-03-16, 04:45:28 [Source](https://groups.google.com/g/samskrita/c/mUYcHXuCEsI)]]
+
+
+
+Saptadveepaa , the adjective, is a bahuvreehi samaasa. The Earth is being called saptadveepaa because it has seven dveepas. It is ending in a long aa to agree with the feminine noun medinee that it is qualifying.
+
+  
+
+S"ivah trinetrah.
+
+  
+
+S'ivaa trinetraa.
+
+  
+
+Naarikelaphalam trinetram.
+
+  
+
+  
+
+  
+
+On Sat, Mar 16, 2019, 3:58 AM Hnbhat B.R. \<[hnbh...@gmail.com]()\> wrote:  
+
+> Simple. There is no question of Sandhi as the word here isसप्तद्वीपा > चas adjective toमेदिनी which is in singular. And it is not in plural > as suggested by yousaptadvīpāśca in the verse.  
+>   
+> On Saturday, March 16, 2019, Harry Spier \<[vasisht...@gmail.com]()\> > wrote:  
+
+> > 
+> > > > The first line of Sankara's commentary on the Bhagavadgita is: > > > > 
+> > > >   
+> > > > 
+> > > > 
+> > > > नारायणः परो ऽव्यक्ताद् अण्डम् अव्यक्तसम्भवम् \| > > > >   
+> > अण्डस्यान्तस् त्व् इमे लोकाः सप्तद्वीपा च मेदिनी \|\| > > > >   
+> > > > Why is it
+> > > > saptadvīpā ca and notsaptadvīpāś ca > > > >   
+> > > > Is this not fromsaptadvīpāḥ ca which becomessaptadvīpāśca by > > sandhi? > > > >   
+> > > > Any insights from list members would be appreciated. > > > >   
+> > > > Thanks, > > > > Harry Spier > > > > 
+> > > > 
+> > > > --  
+> > You received this message because you are subscribed to the Google > > Groups "samskrita" group.  
+
+> > To unsubscribe from this group and stop receiving emails from it, > > send an email to [samskrita+...@googlegroups.com]().
+
+> >   
+> > To post to this group, send email to [sams...@googlegroups.com]().  
+> > Visit this group at <https://groups.google.com/group/samskrita>.  
+> > For more options, visit <https://groups.google.com/d/optout>.  
+
+> --  
+
+> You received this message because you are subscribed to the Google > Groups "samskrita" group.  
+
+> To unsubscribe from this group and stop receiving emails from it, send > an email to [samskrita+...@googlegroups.com]().
+
+
+

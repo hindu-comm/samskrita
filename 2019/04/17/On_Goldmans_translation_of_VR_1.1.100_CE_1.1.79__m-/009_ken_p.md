@@ -1,0 +1,25 @@
++++
+title = "009 ken p"
+
++++
+[[ken p	2019-04-22, 05:38:51 [Source](https://groups.google.com/g/samskrita/c/m-gm7v2mwFc)]]
+
+
+
+# *अन्वेषणपरिणामाः*
+
+  
+
+<https://sa.wikisource.org/w/index.php?search=%E0%A4%AA%E0%A4%A0%E0%A4%A8%E0%A5%8D+%E0%A4%A6%E0%A5%8D%E0%A4%B5%E0%A4%BF%E0%A4%9C%E0%A5%8B&title=%E0%A4%B5%E0%A4%BF%E0%A4%B6%E0%A5%87%E0%A4%B7%E0%A4%83:%E0%A4%85%E0%A4%A8%E0%A5%8D%E0%A4%B5%E0%A5%87%E0%A4%B7%E0%A4%A3%E0%A4%AE%E0%A5%8D&profile=advanced&fulltext=1&advancedSearch-current=%7B%7D&ns0=1>  
+
+  
+
+*पठन् द्विजो वाक् ऋषभत्वम् ईयात् ।  
+स्यात् क्षत्रियो भूमि पतित्वम् ईयात् ॥  
+वणिक् जनः पण्य फलत्वम् ईयात् ।  
+जनः च शूद्रो अपि महत्त्वम् ईयात् ॥१-१-१००॥*
+
+  
+
+<https://sa.wikisource.org/wiki/%E0%A4%B0%E0%A4%BE%E0%A4%AE%E0%A4%BE%E0%A4%AF%E0%A4%A3%E0%A4%AE%E0%A5%8D/%E0%A4%AC%E0%A4%BE%E0%A4%B2%E0%A4%95%E0%A4%BE%E0%A4%A3%E0%A5%8D%E0%A4%A1%E0%A4%AE%E0%A5%8D/%E0%A4%B8%E0%A4%B0%E0%A5%8D%E0%A4%97%E0%A4%83_%E0%A5%A7>  
+

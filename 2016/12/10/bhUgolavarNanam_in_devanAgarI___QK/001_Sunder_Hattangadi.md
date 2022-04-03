@@ -1,0 +1,44 @@
++++
+title = "001 Sunder Hattangadi"
+
++++
+[[Sunder Hattangadi	2016-12-11, 04:45:48 [Source](https://groups.google.com/g/samskrita/c/QKRsWTS7SGs)]]
+
+
+
+[Bhugola Varnanam Sanskrit (By Sri Vadiraja Tirtha Maharaja)](https://archive.org/stream/BhugolaVarnanamSanskritbySriVadirajaTirthaMaharaja/BhugolavarnanamSanskrit#page/n9/mode/2up)
+
+  
+
+  
+
+[](https://archive.org/stream/BhugolaVarnanamSanskritbySriVadirajaTirthaMaharaja/BhugolavarnanamSanskrit#page/n9/mode/2up)
+
+[TABLE]
+
+  
+
+  
+  
+
+------------------------------------------------------------------------
+
+**From:** Pradyumna Achar \<[pradyum...@gmail.com]()\>  
+**To:** samskrita \<[sams...@googlegroups.com]()\>  
+**Sent:** Saturday, December 10, 2016 5:18 AM  
+**Subject:** \[Samskrita\] भूगोलवर्णनम् in देवनागरी ?  
+
+  
+
+
+
+--  
+You received this message because you are subscribed to the Google Groups "samskrita" group.  
+To unsubscribe from this group and stop receiving emails from it, send an email to [samskrita+...@googlegroups.com]().  
+To post to this group, send email to [sams...@googlegroups.com]().  
+Visit this group at <https://groups.google.com/group/samskrita>.  
+For more options, visit <https://groups.google.com/d/optout>.  
+
+  
+  
+

@@ -1,0 +1,45 @@
++++
+title = "009 सीताराम"
+
++++
+[[सीताराम	2016-03-05, 23:15:47 [Source](https://groups.google.com/g/samskrita/c/bMufDmp8JMg)]]
+
+
+
+Ken,  
+
+I am not going to comment further to this post but I can not understand your obsession to change things why can't you learn Sanskrit language in its original form.  
+
+Why do you have to modify to your preference.  
+
+For the last time - पञ्च is how it should be written. everything else is wrong with respect to Sanskrit, you can call whatever it is Gujanagari or whatever but IT IS NOT SANSKRIT.  
+  
+
+Bye  
+
+Raama  
+
+  
+
+
+
+
+
+> 
+> > 
+> > --  
+> > 
+> > 
+
+> 
+> > 
+> > You received this message because you are subscribed to the Google > Groups "samskrita" group.  
+> To unsubscribe from this group and stop receiving emails from it, send > an email to [samskrita+...@googlegroups.com]().  
+> To post to this group, send email to [sams...@googlegroups.com]().  
+> Visit this group at <https://groups.google.com/group/samskrita>.  
+> For more options, visit <https://groups.google.com/d/optout>.  
+> > 
+> > 
+
+
+

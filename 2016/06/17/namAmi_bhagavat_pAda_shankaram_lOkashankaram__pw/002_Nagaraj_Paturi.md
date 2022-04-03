@@ -1,0 +1,78 @@
++++
+title = "002 Nagaraj Paturi"
+
++++
+[[Nagaraj Paturi	2016-06-17, 10:20:55 [Source](https://groups.google.com/g/samskrita/c/pw7feE7xpUQ)]]
+
+
+
+Grammatically both are correct.
+
+  
+
+But since
+
+  
+
+श्रुति स्मृति पुराणानाम् आलयं करुणालयम्। ***नमामि भगवत्पाद शंकरं लोकशंकरं***।।
+
+  
+
+is a verse,
+
+  
+
+metrically only
+
+  
+
+***नमामि भगवत्पाद शंकरं लोकशंकरं***
+
+***  
+***
+
+***is correct.***
+
+  
+
+
+
+
+
+> --  
+
+> You received this message because you are subscribed to the Google > Groups "samskrita" group.  
+> To unsubscribe from this group and stop receiving emails from it, send > an email to [samskrita+...@googlegroups.com]().  
+> To post to this group, send email to [sams...@googlegroups.com]().  
+> Visit this group at <https://groups.google.com/group/samskrita>.  
+> For more options, visit <https://groups.google.com/d/optout>.  
+
+  
+  
+  
+--  
+
+Nagaraj Paturi
+
+
+
+Hyderabad, Telangana, INDIA.
+
+
+
+Former Senior Professor of Cultural Studies
+
+
+
+FLAME School of Communication and FLAME School ofLiberal Education,
+
+
+
+(Pune, Maharashtra,INDIA)
+
+
+
+
+
+
+

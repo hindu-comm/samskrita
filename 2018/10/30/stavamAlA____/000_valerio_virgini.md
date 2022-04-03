@@ -1,0 +1,34 @@
++++
+title = "000 valerio virgini"
+
++++
+[[valerio virgini	2018-10-30, 19:50:30 [Source](https://groups.google.com/g/samskrita/c/___5h5pGtqg)]]
+
+
+
+Dear scholars
+
+  
+
+I can not understand the meaning of स्तवालिमेतां
+
+  
+
+Is there a mistake?
+
+  
+
+![image.png](https://groups.google.com/group/samskrita/attach/c162714f334fa/image.png?part=0.1&view=1)  
+
+  
+
+thank you
+
+valerio
+
+  
+
+|                                                                                                                                                                                                                                                                                                                                                                                                                                 |                                                                                                                                                   | |---------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------|---------------------------------------------------------------------------------------------------------------------------------------------------| | [![](https://ci3.googleusercontent.com/proxy/IAkhl6EbYbQYD9J_1Dc6N_HPU5Z488DnGcKcnWpOKuYmchAYVxkuaNLcLza-a4lma2s9ti4CdivC6ngcOg6DxsKIfQSj1jUPE23T-RPW6SSIBxsEZEVz9o7f4AeRul4zwq6JNmxjsa05TVZzHfERYYI-=s0-d-e1-ft#https://ipmcdn.avast.com/images/icons/icon-envelope-tick-round-orange-animated-no-repeat-v1.gif)](https://www.avast.com/sig-email?utm_medium=email&utm_source=link&utm_campaign=sig-email&utm_content=webmail) | Mail priva di virus. [www.avast.com](https://www.avast.com/sig-email?utm_medium=email&utm_source=link&utm_campaign=sig-email&utm_content=webmail) |
+
+[](#m_-6138603647578865108_DAB4FAD8-2DD7-40BB-A1B8-4E2AA1F9FDF2)
+

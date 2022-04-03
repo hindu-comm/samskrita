@@ -1,0 +1,47 @@
++++
+title = "001 hnbhat"
+
++++
+[[hnbhat	2013-11-06, 07:17:54 [Source](https://groups.google.com/g/samskrita/c/mFthRfkKqfc)]]
+
+
+
+  
+  
+On Wednesday, 6 November 2013 06:11:35 UTC+5:30, Harry Spier wrote:
+
+> 
+> > 
+> > Dear list members,  
+> > 
+> > 
+> >   
+> > 
+> > 
+> > In the Annapurna stotram all of the names of Annapurna appear to be in > the nominative case not the vocative case. Here is verse 10 as an > example: >
+> 
+> > 
+> > kṣatratrāṇakarī mahābhayakarī mātā kṛpāsāgarī  
+> sākṣānmokṣakarī sadā zivakarī vidhneśvarī śrīdharī \|  
+> dakṣākrandakarī nirāmayakarī kāśīpurādhīśvarī  
+> bhikṣāṁ dehi kṛpāvalambanakarī mātānnapūrṇeśvarī \|\| >
+> 
+> > 
+> >   
+> > 
+> > 
+> > If these names are in the nominative case then I'm not clear why > they're not in the vocative case? 
+> > 
+> > 
+> > Is it for metrical reasons? >
+> 
+> > 
+
+  
+
+They are all nominative singular case, as the adjectives of the subject of the verb देहि in the singular second person त्वम् भिक्षां देहि। and there is no other reasons.
+
+  
+
+  
+

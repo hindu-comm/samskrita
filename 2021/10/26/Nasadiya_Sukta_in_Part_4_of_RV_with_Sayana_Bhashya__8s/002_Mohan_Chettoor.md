@@ -1,0 +1,26 @@
++++
+title = "002 Mohan Chettoor"
+
++++
+[[Mohan Chettoor	2021-10-27, 09:52:02 [Source](https://groups.google.com/g/samskrita/c/8soxoFfGl88)]]
+
+
+
+I understand I have sent the full suktham.
+
+एकादशेऽनुवाके त्रयोविंशतिसंख्याकानि सूनानि । तत्र 'नासदासीत् ' इति सप्तचं प्रथम सूक्तं त्रैष्टभम्। परमेष्ठी नाम प्रजापतिऋषिः । वियदादिभावानां सृष्टिस्थितिप्रलयादीनामत्र प्रतिपावरवात् तेषां' कर्ता परमात्मा देवता। तथा चानुकान्तं--'नासत्सप्त प्रजापतिः परमेष्टी भाववृत्तं तु' इति । गतो विनियोगः ॥
+
+As per the above para, Nasadiya Sukta contains 7 slokas('नासदासीत् ' इति सप्तचं प्रथम सूक्तं). Please correct me if I am wrong.
+
+Mohan Chettoor.
+
+  
+
+  
+
+
+
+
+
+> To view this discussion on the web visit > [https://groups.google.com/d/msgid/samskrita/CANjp1RYBeddRWhKr%2BZz3DZqrrEiMsEGCgO-%2BQuqsY82G22iVSg%40mail.gmail.com](https://groups.google.com/d/msgid/samskrita/CANjp1RYBeddRWhKr%2BZz3DZqrrEiMsEGCgO-%2BQuqsY82G22iVSg%40mail.gmail.com?utm_medium=email&utm_source=footer).  
+

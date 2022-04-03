@@ -1,0 +1,62 @@
++++
+title = "006 hnbhat"
+
++++
+[[hnbhat	2017-02-27, 16:33:37 [Source](https://groups.google.com/g/samskrita/c/bWtEstRvPc0)]]
+
+
+
+On 27 February 2017, at 12:50, valerio virgini \<[valerio...@gmail.com]()\> wrote:
+
+\>  
+\>  
+\>The compound क्रियासिद्धम् has an adjectival meaning?  
+\>is a tatpurusha or bahuvrihi?
+
+Not necessarily when it means tatpurusha generally, a bahuvrihi is far fetched unless context requires such meaning for two membered compound.
+
+\>it can have different meanings for this context?  
+\>
+
+You are reading the text and how can others answer this question?
+
+  
+\>thanks  
+\>  
+\>valerio  
+\>  
+\>2017-02-26 2:13 GMT+01:00 hnbhat \<[hnbh...@gmail.com]()\>:  
+\>  
+\>On 26 February 2017, at 03:31, valerio virgini \<[valerio...@gmail.com]()\> wrote:  
+\>  
+\>\>  
+\>\>  
+\>\>सम्यग्ज्ञानं क्रियासिद्धम् ॥ ३ ॥  
+\>\>क्रियासिद्धम् is a compound?  
+\>\>  
+\>\>or  
+\>\>क्रिया Nom fem and  
+\>\>सिद्धम् adv or Nom neu ? (Perfectly practiced)  
+\>\>it is possible that च is implied?  
+\>\>  
+\>  
+\>Not possible unless context desires that क्रियासिद्धम् to be split.  
+\>  
+\>--  
+\>You received this message because you are subscribed to the Google Groups "samskrita" group.  
+
+\>To unsubscribe from this group and stop receiving emails from it, send an email to [samskrita+...@googlegroups.com]().
+
+  
+\>To post to this group, send email to [sams...@googlegroups.com]().  
+\>Visit this group at <https://groups.google.com/group/samskrita>.  
+\>For more options, visit <https://groups.google.com/d/optout>.  
+\>  
+
+\>--  
+\>You received this message because you are subscribed to the Google Groups "samskrita" group.  
+
+\>To unsubscribe from this group and stop receiving emails from it, send an email to [samskrita+...@googlegroups.com]().
+
+
+

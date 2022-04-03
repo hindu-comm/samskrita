@@ -1,0 +1,33 @@
++++
+title = "002 Subrahmanian R"
+
++++
+[[Subrahmanian R	2016-03-02, 08:10:38 [Source](https://groups.google.com/g/samskrita/c/nIBcoiFAZ70)]]
+
+
+
+I remember having read in Meghadhoota Kalidasas description of Ujjaiyini having palm groves - Palmira trees with golden leaves.
+
+  
+
+R Subrahmanian
+
+  
+
+
+
+
+
+> 
+> > 
+> > --  
+> You received this message because you are subscribed to the Google > Groups "samskrita" group.  
+> To unsubscribe from this group and stop receiving emails from it, send > an email to [samskrita+...@googlegroups.com]().  
+> To post to this group, send email to [sams...@googlegroups.com]().  
+> Visit this group at <https://groups.google.com/group/samskrita>.  
+> For more options, visit <https://groups.google.com/d/optout>.  
+> > 
+> > 
+
+  
+
